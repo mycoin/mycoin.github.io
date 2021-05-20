@@ -1,0 +1,1 @@
+# mycoin.github.io
